@@ -1,2 +1,2 @@
 # Faruk
-work hard make simething diffrent
+work hard make something diffrent
